@@ -1,16 +1,24 @@
-## Hi there 👋
+谁有网址急急急急急一个㖭b两个㖭
 
-<!--
-**ndmzsa/ndmzsa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+对于绘里奈来说，仅仅是听到和薙切蓟有关的消息，都会是对她心理阴影的刺痛、都会令她惊慌失措吧？
+
+    薙切仙左卫门对绘里奈保密，应该也是这个原因。
+
+    而绘里奈现在更想知道的，显然也是后一件事情，丹麦的事情绘里奈可以自己脑补，反正刘昴星也不是第一次和其他人传出绯闻！
+
+    但是后一件事情，却令她产生了一种，其他人联手在“欺骗”她的感觉。
+
+    令她最难以接受的是，刘昴星居然也在“其他人”之列……
+
+    虽然她也不明白，刘昴星在“其他人”之列有什么不对，但就是出于本能的不愿意接受！
+
+    刘昴星看着绘里奈沉默的样子，忽然贴近她耳边说道：“但无论发生什么事情，我都不会让你受到伤害的！”
+
+    绘里奈闻言楞了一下，之后脸色腾地红了起来，双手无措的绞着衣角嗫嚅：“什、什么乱七八糟的！无缘无故说这个做什么……笨蛋！笨蛋！笨蛋！”之后后面的“笨蛋”吐字清晰。
+
+    “这不是绘里奈大小姐吗？位置选的还不错，就是这种餐垫的颜色我太喜欢！”爱丽丝的声音这时传了过来。
+
+    这里的布置是十八张相对的小矮桌，加上可供人席地而坐的野餐垫。
